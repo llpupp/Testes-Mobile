@@ -1,1 +1,1 @@
-Repositório relativos aos primeirs testes Mobile - EBAC
+Repositório relativos aos primeiros testes Mobile - EBAC
